@@ -9,7 +9,7 @@
 
 הפלטפורמות המיועדות: מחשב ופלאפון
 
-![Alt text](WhatsApp Image 2024-11-10 at 12.37.22_7157f18b.jpg)
+![Alt text](WhatsAppImage2024-11-10at12.37.22_7157f18b.jpg)
 
 ---
 
